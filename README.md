@@ -1,2 +1,2 @@
 # hello-world
-Olga is a great Teacher from a capital letter T
+Olga is a great person and I love her! 
